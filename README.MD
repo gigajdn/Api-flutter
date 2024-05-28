@@ -1,9 +1,2 @@
-TEKNOLOGI MOBILE 27 MEI 2024
-
-Nama : 
-
-Fhira Triana Maulani
-
-Nim : 
-
-2100016012
+Nama : Giga Jundan Al Huda
+Nim : 2100016020
